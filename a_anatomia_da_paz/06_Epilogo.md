@@ -1,0 +1,13 @@
+# Epílogo
+
+O meu trabalho como cartógrafo está feito. O mapa da vossa jornada em direção à paz está esboçado. As linhas mostram um caminho tortuoso, cheio de desvios, de becos sem saída e de vales sombrios. Mas também mostram uma direção, uma tendência inexorável para uma maior cooperação e uma menor violência.
+
+O que o futuro vos reserva? O jogo continua, e as regras estão sempre a mudar. Novos desafios surgirão: alterações climáticas, pandemias globais, a ascensão de inteligências não-humanas. Cada um destes desafios será um novo teste à vossa capacidade de cooperar, um novo capítulo no vosso "Dilema do Prisioneiro Iterado".
+
+A anatomia da paz não é um destino, mas uma habilidade. Uma habilidade que vocês adquiriram não por decreto divino ou por uma súbita iluminação moral, mas através da dura e implacável lógica do interesse próprio num mundo interconectado. Vocês aprenderam a ser pacíficos da mesma forma que aprenderam a fazer fogo, a cultivar a terra e a construir cidades: porque era necessário para a vossa sobrevivência.
+
+Continuarei a observar. Continuarei a mapear as vossas escolhas, as vossas estratégias, a vossa dança sem fim entre a cooperação e o conflito. A história da humanidade é a história de um jogador a aprender as regras do jogo enquanto o joga. E o prémio final não é a vitória sobre os outros, mas a continuação do próprio jogo.
+
+Não vos deixo com esperança ou com desespero, mas com uma observação. A vossa capacidade para a paz é tão inata como a vossa capacidade para a guerra. Ambas são estratégias no vosso repertório. A questão que definirá o vosso futuro não é qual delas é a vossa "verdadeira" natureza, mas qual delas vocês escolherão jogar.
+
+O tabuleiro está posto. As peças são vossas. Joguem bem.

@@ -1,0 +1,15 @@
+# Capítulo 4: O Jogo de Soma Não-Zero
+
+A ameaça da aniquilação mútua forçou a humanidade a olhar para além do jogo de soma zero, onde o ganho de um é a perda do outro. Lentamente, a percepção de que a cooperação poderia levar a resultados benéficos para todos começou a ganhar terreno. Este é o "Jogo de Soma Não-Zero", a descoberta de que o bolo pode ser aumentado, em vez de apenas dividido.
+
+Observei o surgimento do comércio global, da ciência colaborativa, da diplomacia. Vi inimigos históricos se unirem em alianças económicas, compartilhando recursos e conhecimentos para o benefício mútuo. A lógica da cooperação, antes restrita aos pequenos grupos, começou a ser aplicada em escala global.
+
+O "interesse próprio esclarecido" tornou-se um novo e poderoso "gene" da paz. A percepção de que a prosperidade do "outro" poderia contribuir para a minha própria prosperidade, de que a sua segurança aumentava a minha, de que o seu bem-estar era, em última análise, o meu também.
+
+Esta não é uma paz baseada no altruísmo. É uma paz baseada no mais puro e simples pragmatismo. É o reconhecimento de que, num mundo interconectado, os vossos destinos estão entrelaçados. A pobreza, a doença, a instabilidade em uma parte do mundo têm repercussões em todas as outras.
+
+A globalização, com todas as suas falhas e contradições, foi um poderoso acelerador deste processo. As cadeias de abastecimento globais, a internet, as viagens internacionais, tudo isso contribuiu para criar uma teia de interdependência que torna a guerra cada vez mais custosa e a cooperação cada vez mais lucrativa.
+
+O mapa da paz começou a se assemelhar a uma complexa rede de conexões, de fluxos de bens, de ideias, de pessoas. As antigas fronteiras tribais, embora ainda existam, tornaram-se cada vez mais porosas, cada vez mais irrelevantes diante da lógica do jogo de soma não-zero.
+
+A humanidade ainda está a aprender a jogar este novo jogo. Há retrocessos, há nacionalismos, há a tentação de voltar à velha lógica do "nós contra eles". Mas o "gene" do interesse próprio esclarecido, uma vez ativado, é difícil de ser desligado. A vossa própria sobrevivência e prosperidade dependem dele.

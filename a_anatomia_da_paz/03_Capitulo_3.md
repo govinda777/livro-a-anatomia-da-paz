@@ -1,0 +1,19 @@
+# Capítulo 3: A Corrida Armamentista e o Equilíbrio de Poder
+
+A desconfiança entre grupos levou a um fenómeno que observei repetidamente ao longo da vossa história: a corrida armamentista. Cada grupo, temendo o poder do outro, busca aumentar o seu próprio poder. O resultado é uma espiral ascendente de militarização, onde a segurança de um é a insegurança do outro.
+
+Este é o "Dilema da Segurança". A busca por segurança leva a uma maior insegurança para todos. É um jogo perigoso, onde o custo da derrota é a aniquilação.
+
+Vi este jogo ser jogado com paus e pedras, com espadas e escudos, com arcos e flechas, e, finalmente, com armas de destruição em massa. A lógica é sempre a mesma, apenas a escala da destruição potencial muda.
+
+Mas a corrida armamentista, por mais paradoxal que pareça, também pode ser um caminho para a paz. Uma paz precária, tensa, mas ainda assim, uma paz. Quando dois ou mais grupos atingem um ponto em que o poder de cada um é suficiente para aniquilar o outro, o custo da guerra torna-se proibitivamente alto.
+
+Este é o "Equilíbrio de Poder", ou, como vocês o chamaram durante a vossa "Guerra Fria", a "Destruição Mútua Assegurada". A guerra torna-se irracional, pois não há vencedores, apenas sobreviventes num mundo devastado.
+
+O medo, o mesmo medo que impulsionou a corrida armamentista, torna-se o guardião da paz. Não é uma paz baseada na confiança ou na cooperação, mas no terror do apocalipse.
+
+Este "gene" da paz, o da dissuasão pelo medo, é um gene instável. Ele depende da racionalidade de todos os jogadores, da ausência de erros de cálculo, da perfeição dos sistemas de comando e controlo. É uma paz que vive à beira do abismo, a um passo do esquecimento.
+
+Mas, mesmo nesta paz nascida do medo, há uma lição importante. A humanidade, pela primeira vez, foi forçada a pensar em escala global. O destino de cada grupo estava intrinsecamente ligado ao destino de todos os outros. A vossa sobrevivência como espécie dependia da vossa capacidade de evitar o jogo final.
+
+O mapa da paz ganhou uma nova dimensão, uma dimensão de interdependência global. As fronteiras tribais começaram a parecer cada vez mais irrelevantes diante da ameaça de aniquilação total. A humanidade estava a ser arrastada, relutantemente, para uma nova fase do jogo.
