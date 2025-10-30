@@ -1,0 +1,17 @@
+# Capítulo 1: O Jogo do Sobrevivente
+
+No início, não havia regras, apenas a fome. A humanidade, em sua infância, era uma criatura de instintos primários. A cooperação era um luxo, a competição, uma necessidade. O jogo era simples: o mais forte, o mais rápido, o mais astuto, sobrevivia. Os outros, pereciam.
+
+Este era o "Dilema do Prisioneiro" em sua forma mais crua. Dois caçadores se encontram diante de uma grande presa. Se cooperarem, ambos terão comida por semanas. Se um trair o outro, o traidor fica com tudo, e o traído, com nada. Se ambos se traírem, a presa escapa e ambos passam fome.
+
+A escolha racional, do ponto de vista individual e de curto prazo, é sempre trair. Afinal, por que arriscar ficar sem nada? E assim, a traição era a norma. A violência, a ferramenta. A desconfiança, a moeda.
+
+Mas o jogo não era jogado apenas uma vez. Era um jogo repetido, um "Dilema do Prisioneiro Iterado". E com a repetição, a estratégia ótima muda.
+
+Observei pequenos grupos familiares, tribos, clãs. Eles aprenderam que a cooperação dentro do grupo aumentava as chances de sobrevivência de todos. A traição ainda existia, mas era punida. A confiança, embora frágil, começou a brotar.
+
+Este foi o primeiro "gene" da paz a se manifestar: a reciprocidade. A ideia de que "eu coço as suas costas se você coçar as minhas". Uma estratégia simples, mas poderosa, que transformou o jogo de soma zero da sobrevivência individual em um jogo de soma positiva da sobrevivência do grupo.
+
+Mas o jogo ainda era brutal. A cooperação se estendia apenas aos membros do próprio grupo. Fora do grupo, a antiga lei da selva ainda prevalecia. A paz era uma paz interna, uma paz para "nós", enquanto a guerra era a norma para "eles".
+
+A humanidade havia dado o primeiro passo, mas a jornada para a verdadeira paz, uma paz que transcende as fronteiras tribais, ainda estava muito, muito distante. O mapa ainda estava sendo desenhado, e as primeiras linhas eram tortuosas e manchadas de sangue.
